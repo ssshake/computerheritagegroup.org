@@ -1,3 +1,3 @@
-# computerheritagegroup.com
-computerheritagegroup.com
+# computerheritagegroup.org
+[computerheritagegroup.org](http://computerheritagegroup.org)
 ![](chg.png)
